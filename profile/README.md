@@ -10,4 +10,4 @@ if you want to work with me on anything, reach out on discord.
 discord: sometimeskieran
 
 ###### there isn't much public though!
-a lot of my projects are private and so there isn't much to show publically. but stay tuned!
+a lot of my projects are private and so there isn't much to show publicly. but stay tuned!
